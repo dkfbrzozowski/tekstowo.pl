@@ -1,0 +1,1 @@
+# tekstowo.pl
